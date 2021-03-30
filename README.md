@@ -1,1 +1,1 @@
-# abrorabdullaev.github.io
+Online Portfolio undone, sorry just couldnt finish in time.
